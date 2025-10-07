@@ -3,4 +3,4 @@ Welcome to the Lightsoft Productions, a singular developer who works and makes s
 ## 🏦 Curations
 - **Red Leaf**
 ## 👥 People
-- **Rolisis (Same on Discord)**
+- ** (Same on Discord)**
